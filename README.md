@@ -1,1 +1,1 @@
-# VEGA-25-Aray-z-Program-
+# VEGA-25-Arayuz-Programi
